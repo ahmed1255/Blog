@@ -1,2 +1,0 @@
-# e-nitiate
-Ahmed page
